@@ -15,4 +15,4 @@ Open to new roles.
 
 &nbsp;
 
-[Work](https://work.achrafgarai.com) &nbsp;·&nbsp; [Design engineering](https://portfolio.achrafgarai.com) &nbsp;·&nbsp; [Writing](https://achrafgarai.com) &nbsp;·&nbsp; [LinkedIn](https://www.linkedin.com/in/achraf-garai)
+[Work](https://portfolio.achrafgarai.com) &nbsp;·&nbsp; [Writing](https://achrafgarai.com) &nbsp;·&nbsp; [LinkedIn](https://www.linkedin.com/in/achraf-garai)
